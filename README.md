@@ -1,1 +1,1 @@
-Showing method
+Shocking Method for muscles
